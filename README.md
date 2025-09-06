@@ -2,3 +2,6 @@
 This is a list of my personal favorite things.
 Tacos
 Pizza
+Playing video games
+Traveling
+Making people laugh
